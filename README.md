@@ -10,5 +10,7 @@ Ludvig är fan bäst alltså!
 
 LADZ
 
+Gustav, är du verkligen bäst?
+
 Gustav är bäst
 
